@@ -4,3 +4,4 @@ secretary for mr.jeon(JK).
 I LIKE DOGS , 
 i am a foddie.
 i am a lot clumsier than ------?
+i am a very outgoing person
